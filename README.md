@@ -4,4 +4,6 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=ƎᗡIꙄͶI+ᗡAᗡ)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=D̵̨͖̖̰͔̗͆̔͑͛̚A̴̠̞͙̗̠̐́̈́̓͐̑̃̉̎D̵̘͈̿̄̈+ ̴͍̬͓̩̭̌̈́I̵̧̠̩̙̯̬͉̲̮̊̅́͋̍͛̏̕̚͜N̵͈̈́̚S̴̨̧̤̉͜͝Ĩ̷̢͕̲͔̣͇͍̰̂̇́̑̆̄̐͝D̵̲̥̦͖̤̥̹͇͋̂͑̎E̷̥͚̩̳̿̾͗̃̒͂̒̄̀)](https://git.io/typing-svg)
+
+
+###D̵̨͖̖̰͔̗͆̔͑͛̚A̴̠̞͙̗̠̐́̈́̓͐̑̃̉̎D̵̘͈̿̄̈ ̴͍̬͓̩̭̌̈́I̵̧̠̩̙̯̬͉̲̮̊̅́͋̍͛̏̕̚͜N̵͈̈́̚S̴̨̧̤̉͜͝Ĩ̷̢͕̲͔̣͇͍̰̂̇́̑̆̄̐͝D̵̲̥̦͖̤̥̹͇͋̂͑̎E̷̥͚̩̳̿̾͗̃̒͂̒̄̀
